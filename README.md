@@ -1,7 +1,7 @@
 ╭══• ೋ•✧๑♡๑✧•ೋ •══╮
      Sera Hizashi
 ╰══• ೋ•✧๑♡๑✧•ೋ •══╯ 
-
+.
 ⊱⋅ 15 anos ⋅⊰
 ⊱⋅ mitologia,animais,livros,historia,shifting, poesias,musicas, viajar,artes ⋅⊰
 ⊱⋅ Bruxo Politeista Helenico ⋅⊰
